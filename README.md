@@ -1,7 +1,1 @@
-"# Ã–ztÃ¼rk" 
-"# ReadmeRepo" 
-"# ™ztrk" 
-"# ™ztrk" 
-"# ™ztrk" 
-"# ™ztrk" 
 "# ™ztrk" 
